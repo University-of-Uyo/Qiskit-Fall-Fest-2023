@@ -23,3 +23,5 @@ _BREAK FOR UNIUYO CONVOCATION: 07/11/2023 - 11/11/2023_
 N/B: Challenges will be rolled out from Day 4 (18/11/2023), and the final date of submission of all the challenges will be on Sunday (25/11/2023) at 11:59PM WAT.
 
 Results are to be announced afterwards.
+
+Below is the Google photos link to the images from the physical event >>> https://photos.app.goo.gl/3RPwxu42DGqKjJyN7
